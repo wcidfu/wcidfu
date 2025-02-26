@@ -1,4 +1,4 @@
-## Hi there 👋
+## Я ЧУРКА
 ![image](https://github.com/user-attachments/assets/77c54c01-fead-4352-8d13-806bd6ad3871)
 
 .             ☽
