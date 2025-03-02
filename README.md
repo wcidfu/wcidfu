@@ -1,16 +1,27 @@
 🦷 Михаил (mby) Непомнящий
+     Учиться, думает..
+
+     
+     　　|
+　　　　　|
+　　　　　|
+　　　　　|
+　　　　　|
+　　　　　|
+　　　　　|
+　　　　　|
+　　　　　|
+　／￣￣＼|
+＜ ´･ 　　 |＼
+　|　３　 | 丶＼
+＜ 、･　　|　　＼
+　＼＿＿／∪ _ ∪)
+　　　　　 Ｕ Ｕ
 
 ![image](https://github.com/user-attachments/assets/77c54c01-fead-4352-8d13-806bd6ad3871)
-
-.             ☽
-     
-
-.            へ      ☽
-        ૮  -   ՛ )   
-
-       /   ⁻  ៸|     
-    乀 (ˍ, ل ل
-    
+✦⋆⁺₊⋆ 
+                                                                                ☾ ⋆⁺₊⋆✦ 
+.        
 <!--
 **wcidfu/wcidfu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
